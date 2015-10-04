@@ -1,0 +1,3 @@
+# analytics-issues-JERIGOOGLE
+Automatically exported from code.google.com/p/analytics-issues
+VERY EFFECTIVE AND FUNCTIONAL FOR ADVERTISING...
